@@ -78,3 +78,6 @@ I love collaborating on projects, discussing tech, or simply networking with fel
 </div>
 
 ###
+
+#### Abour profile picture
+Hecate (Hekate) is a goddess of Greek mythology capable of both good and evil. She was associated with witchcraft, magic, the Moon, doorways, and creatures of the night like hell-hounds and ghosts. Hecate often carries a torch in her connection with the night. She has three faces for her role as the goddess of boundaries and the guardian of crossroads.
